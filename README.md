@@ -1,4 +1,4 @@
-## What up <img width="527" height="379" alt="image" src="https://github.com/user-attachments/assets/4b3a04fc-3250-4a89-be20-6a03dc35c8e7" />
+## What up <img width="16" height="20" alt="image" src="https://github.com/user-attachments/assets/4b3a04fc-3250-4a89-be20-6a03dc35c8e7" />
 
 
 
